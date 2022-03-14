@@ -1,4 +1,4 @@
-- 👋 Hi, I’m the suck boi
+- 👋 Hi, I’m the loser...
 - 👀 I’m interested in most ways music
 - 🌱 I’m currently learning subchannels
 - 💞️ I’m looking to collaborate on nothing
